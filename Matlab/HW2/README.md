@@ -2,7 +2,7 @@
 
 
 
-![hw2](https://user-images.githubusercontent.com/31590051/48899450-f651ec00-ee92-11e8-9c19-0b193ca8e64c.jpg)
+![kakaotalk_20181122_203507178](https://user-images.githubusercontent.com/31590051/48900648-4b433180-ee96-11e8-8a48-4949acc09154.jpg)
 
 
 
